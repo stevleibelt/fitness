@@ -6,9 +6,9 @@
 * put your chin on your breast
 * repeat this five times
     * turn your head to the right slowly while you breath in
-    * turn your head to the middle slowly while you breath ou
+    * turn your head to the middle slowly while you breath out
     * turn your head to the left slowly while you breath in
-    * turn your head to the middle slowly while you breath ou
+    * turn your head to the middle slowly while you breath out
 
 # streching the neck
 
